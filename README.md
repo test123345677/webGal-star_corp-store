@@ -1,0 +1,1 @@
+# webGal-star_corp-store
